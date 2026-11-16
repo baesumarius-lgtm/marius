@@ -1,1 +1,1 @@
-Finalistes : Equipe A vs Equipe B
+Finalistes : Equipe C vs Equipe D 
